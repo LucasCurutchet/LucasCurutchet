@@ -50,8 +50,8 @@ Coming soon...
 
 ## 📫 Connect with Me
 
-- 💼 LinkedIn: https://www.linkedin.com/in/TU-LINK
-- 📧 Email: TUEMAIL@GMAIL.COM
+- 💼 LinkedIn: https://www.linkedin.com/in/lucascurutchet/
+- 📧 Email: lucascurutchet2323@hotmail.com
 
 ---
 
